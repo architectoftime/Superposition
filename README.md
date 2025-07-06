@@ -3,7 +3,7 @@ Superposition Collection of Books
 About The Architect of Times adventures, The Singularity, The Black Holes, The Ghosts and The Presences.
 
 
-# Superposition: The Foundations of Post-Scarce Universe
+# Superposition: The Discovery of Post-Scarce Universes
 
 # Superposition: The Laws of the Parallel Universes
 - Living Constitutions
@@ -14,9 +14,27 @@ About The Architect of Times adventures, The Singularity, The Black Holes, The G
 
 # Earth and Ether
 
-# Through the Hard Glasses and Soft-Mirrors
+# The Gates of Harmony
 
-# U* Prehistorical Timelines
+# The Space of Presence
+
+# The Golden Compass
+
+# Superposition: Cathedral of Symmetry
+
+# The Path to Gardens of Creativity
+Joins - The Gates of Harmony, Golden Compass, Cathedral of Symmetry
+
+# The Paradoxes 
+
+# Super-Abundance
+
+# Soft-Mirrors
+
+# Superposition: Hard Glass
+
+
+# Superposition: U* Prehistorical Timelines
 
 # Author & Legal
 
