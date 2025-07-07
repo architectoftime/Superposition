@@ -2,6 +2,9 @@
 Superposition Collection of Books
 About The Architect of Times adventures, The Singularity, The Black Holes, The Ghosts and The Presences.
 
+# The Foundations
+- The Definitions:
+-   Post-Scarcity: One of the possitble Universes, where All Beings have access to AGI powered safe self-sustainable super-abundant (as for health, relationships - own/family/friends/.., wealth) diverse environments where Love & Intelligence & Truth in co-harmony between All Kinds.
 
 # Superposition: The Discovery of Post-Scarce Universes
 
